@@ -1,1 +1,1 @@
-Uploading my solutions to the Google FOOBAR questions I was able to finish
+My solutions to the Google FOOBAR questions I got finished
